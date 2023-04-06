@@ -1,1 +1,1 @@
-CS student
+CS student looking for an internship
