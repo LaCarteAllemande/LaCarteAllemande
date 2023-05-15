@@ -1,1 +1,1 @@
-CS student looking for an internship
+CS student looking for an apprenticeship
